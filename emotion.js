@@ -30,3 +30,9 @@ its common some pain will be there bcz of the environment which u were thinking 
 but undesrstand that environment was illusion 
 
 nothing else so never think and push ur brain heart in pain 
+
+
+thats it 
+
+missing piece it was a missing piece ,when i see many noun in suffer mode bcz of above mention things 
+they should understand this thing 
